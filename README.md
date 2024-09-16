@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **elgendyahmed753@gmail.com**
 
-- 📄 Know about my experiences [https://urlis.net/ytznq1rp](https://urlis.net/ytznq1rp)
+- 📄 Know about my experiences [https://shorturl.at/3j5Un](https://shorturl.at/3j5Un)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
